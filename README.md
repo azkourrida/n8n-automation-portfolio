@@ -56,7 +56,10 @@ I stick around — once something's live, I help keep it running and improve it 
  Get in touch
 
 📧 ridaazkour.pro@gmail.com  
+
 💼 LinkedIn : Rida Azkour
+
 💬 Telegram : @ridaazkour
+
 
 Open to one-off projects and longer-term arrangements. If you have something specific in mind, just reach out and describe it — even rough is fine.
